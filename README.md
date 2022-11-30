@@ -1,1 +1,1 @@
-Follow @imbazim
+Follow [@imbazim](https://twitter.com/imbazim)
